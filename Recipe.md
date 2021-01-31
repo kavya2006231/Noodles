@@ -1,0 +1,1 @@
+All you have to do is to just buy a noodles packet which you want , then boil one cup of water take the noodles in the boiled water then mix spices packet in it then wait for 5 minute and your noodles are ready.
